@@ -4,7 +4,7 @@ __Personal information__
 
 __Contacts__
 *phone number: 29 7098442
-*email: SVM1983@tut.by
+*email: miroshnikausv@gmail.com
 *city: Minsk
 
 __Education__
